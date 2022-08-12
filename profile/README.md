@@ -1,3 +1,1 @@
-![indexImg](https://assets-global.website-files.com/5f3c19f18169b62a0d0bf387/60d33be745999ac3353f49bd_KyhyHs_Rlf3kWWoC8Al_C9Y9SZ4dQu_K0fiLIsiCA5Gl8M3Eq77np68PFUgDPd6lKA8EmhKgWs7joHpsQm8upaoIayr4hi6O7Oj3HTzcoVop1HORjy74OdVTZNqFg_mIlfotr0EJ.png)
-
-每天來惡搞一下好了 - by 杰暉
+![indexImg](https://www.meme-arsenal.com/memes/d1229a2baa8f9876fd034ba6c2601026.jpg)
